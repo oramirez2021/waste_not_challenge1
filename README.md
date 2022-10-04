@@ -1,2 +1,0 @@
-# waste_not_challenge1
-waste_not_challenge1
